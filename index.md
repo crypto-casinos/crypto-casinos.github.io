@@ -139,13 +139,12 @@ Crypto casino legality depends on your country.
 - 🔥 **Best Advanced Features:** Rollbit  
 
 ---
-
-# 👉 Explore More Guides
+## 👉 Explore Crypto Casino Guides
 
 - [Bitcoin Casinos](bitcoin-casinos.html)
-- [Crypto Casino Bonuses](crypto-bonuses.html)
 - [No KYC Crypto Casinos](no-kyc-crypto-casinos.html)
-- [Rainbow Riches Crypto Casinos](rainbow-riches.html)
+- [Crypto Casino Bonuses](crypto-bonuses.html)
+- [Crypto Casino Reviews](crypto-casino-reviews.html)
 
 ---
 
