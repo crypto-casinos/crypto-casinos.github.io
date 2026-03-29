@@ -1,3 +1,8 @@
+---
+title: Best Crypto Casinos (2026) – Compare Bonuses, Payouts & Features
+description: Discover the best crypto casinos worldwide. Compare bonuses, payout speeds, supported cryptocurrencies and features for Stake, BC.Game, Gamdom and Rollbit.
+---
+
 # 🪙 Best Crypto Casinos (2026)
 
 Looking for the **best crypto casinos worldwide** with fast withdrawals, high bonuses and secure gameplay?
