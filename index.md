@@ -1,4 +1,4 @@
-# 🪙 Best Crypto Casinos UK (2026)
+# 🪙 Best Crypto Casinos (2026)
 
 Looking for the best crypto casinos with **fast payouts, high bonuses and instant deposits**?
 
@@ -119,4 +119,4 @@ Most crypto casinos process withdrawals in:
 
 # ⚠️ Disclaimer
 
-Crypto casinos may not be regulated by the UK Gambling Commission. Always gamble responsibly.
+Crypto casinos may not be regulated by the  Gambling Commission. Always gamble responsibly.
