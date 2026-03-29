@@ -15,17 +15,17 @@ We compared the **top crypto casinos in 2026** based on:
 
 | Casino | Bonus | Cryptos | Deposit | Withdrawal | Support | Rating | Play |
 |--------|------|--------|--------|------------|---------|--------|------|
-| **BC.Game** | 120% + rewards | 100+ coins | Instant | 5–30 mins | 24/7 Chat | ⭐ 9.8/10 | 👉 [Play Now](https://bc.game/i-2bomfgkzh-n/) |
-| **Stake** | VIP + reloads | BTC, ETH, LTC | Instant | 5–60 mins | 24/7 Chat | ⭐ 9.5/10 | 👉 [Play Now](https://stake.com/?c=xsto) |
-| **Gamdom** | Rakeback + bonuses | BTC, ETH, LTC | Instant | 5–30 mins | 24/7 Chat | ⭐ 9.6/10 | 👉 [Play Now](https://gamdom.com/r/xsto) |
-| **Rollbit** | Cashback + VIP | BTC, ETH, SOL | Instant | 5–45 mins | 24/7 Support | ⭐ 9.7/10 | 👉 [Play Now](https://rollbit.com/referral/mougle) |
+| **BC.Game** | 120% + rewards | 100+ coins | Instant | 5–30 mins | 24/7 Chat | ⭐ 9.8/10 | 👉 <a href="https://bc.game/i-2bomfgkzh-n/" rel="nofollow sponsored" target="_blank">Play Now</a> |
+| **Stake** | VIP + reloads | BTC, ETH, LTC | Instant | 5–60 mins | 24/7 Chat | ⭐ 9.5/10 | 👉 <a href="https://stake.com/?c=xsto" rel="nofollow sponsored" target="_blank">Play Now</a> |
+| **Gamdom** | Rakeback + bonuses | BTC, ETH, LTC | Instant | 5–30 mins | 24/7 Chat | ⭐ 9.6/10 | 👉 <a href="https://gamdom.com/r/xsto" rel="nofollow sponsored" target="_blank">Play Now</a> |
+| **Rollbit** | Cashback + VIP | BTC, ETH, SOL | Instant | 5–45 mins | 24/7 Support | ⭐ 9.7/10 | 👉 <a href="https://rollbit.com/referral/mougle" rel="nofollow sponsored" target="_blank">Play Now</a> |
 
 ---
 
 # 🔍 Detailed Casino Overview
 
 ## 🎰 BC.Game
-👉 **Play here:** https://bc.game/i-2bomfgkzh-n/
+👉 <a href="https://bc.game/i-2bomfgkzh-n/" rel="nofollow sponsored" target="_blank">Play BC.Game</a>
 
 - Supports 100+ cryptocurrencies  
 - Large game library including originals  
@@ -37,7 +37,7 @@ We compared the **top crypto casinos in 2026** based on:
 ---
 
 ## 🎰 Stake
-👉 **Play here:** https://stake.com/?c=xsto  
+👉 <a href="https://stake.com/?c=xsto" rel="nofollow sponsored" target="_blank">Play Stake</a>
 
 - One of the biggest crypto casinos globally  
 - Strong sportsbook + casino combo  
@@ -48,7 +48,7 @@ We compared the **top crypto casinos in 2026** based on:
 ---
 
 ## 🎰 Gamdom
-👉 **Play here:** https://gamdom.com/r/xsto  
+👉 <a href="https://gamdom.com/r/xsto" rel="nofollow sponsored" target="_blank">Play Gamdom</a>
 
 - Fast withdrawals and strong community  
 - Rakeback system for regular players  
@@ -59,7 +59,7 @@ We compared the **top crypto casinos in 2026** based on:
 ---
 
 ## 🎰 Rollbit
-👉 **Play here:** https://rollbit.com/referral/mougle  
+👉 <a href="https://rollbit.com/referral/mougle" rel="nofollow sponsored" target="_blank">Play Rollbit</a>
 
 - Unique crypto + casino hybrid platform  
 - Cashback system and trading features  
@@ -117,6 +117,17 @@ Most crypto casinos process withdrawals in:
 
 ---
 
-# ⚠️ Disclaimer
+# ⚠️ Responsible Gambling & Disclaimer
 
-Crypto casinos may not be regulated by the  Gambling Commission. Always gamble responsibly.
+🔞 **18+ Only** — You must be at least 18 years old to access and use crypto casino platforms.
+
+Gambling can be addictive. Please play responsibly and only wager what you can afford to lose.
+
+If you feel that gambling is becoming a problem, support is available:
+
+- 👉 <a href="https://www.begambleaware.org/" rel="nofollow" target="_blank">BeGambleAware</a> – Free, confidential help and advice  
+- 👉 <a href="https://www.gamstop.co.uk/" rel="nofollow" target="_blank">GAMSTOP</a> – Self-exclusion scheme for UK players  
+
+This website may contain affiliate links. We may earn a commission if you sign up through these links, at no extra cost to you.
+
+Crypto casinos are often not regulated by the UK Gambling Commission. Always verify local laws before playing.
