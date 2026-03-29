@@ -135,10 +135,13 @@ Crypto bonuses can:
 
 # 👉 Related Guides
 
+## 👉 Related Guides
+
 - [Best Crypto Casinos](index.html)
 - [Bitcoin Casinos](bitcoin-casinos.html)
 - [No KYC Crypto Casinos](no-kyc-crypto-casinos.html)
 
+  
 ---
 
 # ⚠️ Responsible Gambling
