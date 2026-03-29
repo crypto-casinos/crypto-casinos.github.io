@@ -126,12 +126,12 @@ These casinos are best for:
 
 ---
 
-# 👉 Related Guides
+## 👉 Related Guides
 
 - [Best Crypto Casinos](index.html)
 - [Bitcoin Casinos](bitcoin-casinos.html)
-- [Crypto Bonuses](crypto-bonuses.html)
-
+- [Crypto Casino Reviews](crypto-casino-reviews.html)
+  
 ---
 
 # ⚠️ Responsible Gambling
