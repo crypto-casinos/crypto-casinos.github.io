@@ -164,6 +164,7 @@ This site contains affiliate links. We may earn a commission at no extra cost to
 Crypto casinos may not be regulated in your jurisdiction. Always verify local laws before playing.
 
 ---
+<meta name="google-site-verification" content="BPAW-zamPlathtOwBI6PeZGsAB1BAcmi6O7IgGBkkaY" />
 
 ## 📄 Important Pages
 - [About](about.html)
