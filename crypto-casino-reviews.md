@@ -150,12 +150,11 @@ We compare:
 
 ---
 
-# 👉 Related Guides
+## 👉 Related Guides
 
 - [Best Crypto Casinos](index.html)
-- [Bitcoin Casinos](bitcoin-casinos.html)
 - [Crypto Bonuses](crypto-bonuses.html)
-- [No KYC Crypto Casinos](no-kyc-crypto-casinos.html)
+- [Bitcoin Casinos](bitcoin-casinos.html)
 
 ---
 
